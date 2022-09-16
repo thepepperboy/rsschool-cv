@@ -1,1 +1,1 @@
-# [rsschool-cv](https://thepepperboy.github.io/rsschool-cv/cv).
+# [rsschool-cv](https://thepepperboy.github.io/rsschool-cv/cv) 
